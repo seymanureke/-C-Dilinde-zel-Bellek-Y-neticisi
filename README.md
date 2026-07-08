@@ -1,0 +1,1 @@
+# -C-Dilinde-zel-Bellek-Y-neticisi
